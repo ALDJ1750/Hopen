@@ -22,3 +22,5 @@ https://youtu.be/5u5I5jvWR5k?si=VdqDgSQZSGL_v5qg
 
 #dafuq?
 https://youtu.be/9CKRoKFdS5Y?si=VzX8s-tHhMnluEQh
+#why?
+https://youtu.be/SMOD_GiRzb8?si=8ggMoKYIvFeGPlq_
