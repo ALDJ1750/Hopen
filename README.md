@@ -1,4 +1,4 @@
-
+https://rr2---sn-2ohpa5-55.googlevideo.com/videoplayback?expire=1778547590&ei=JicCavSSC8OH6dsPj8GAIQ&ip=77.81.103.97&id=o-AAdipkxxhIqhSPBb7NZ6rnTn3oq_BE-nXWYDC1Ed4m1R&itag=18&source=youtube&requiressl=yes&xpc=EgVo2aDSNQ%3D%3D&cps=492&met=1778525990%2C&mh=Ej&mm=31%2C26&mn=sn-2ohpa5-55%2Csn-1giz7n7l&ms=au%2Conr&mv=m&mvi=2&pl=24&rms=au%2Cau&initcwndbps=5513750&bui=AbKmrwrm8Qe2tf4q0Dogs5TydYWM90_AOoTvD0_-2jC8P_FyxjBpAt38lh4_rnvYcg8B8-PAkjj9r5Re&spc=96Xrv-9mHFl9Tr1mWVEI8I6T5i5fKYJ6EVOqaDGVuncYNvTKXbyBH-LBHJb6avagzNE&vprv=1&svpuc=1&mime=video%2Fmp4&rqh=1&gir=yes&clen=63533218&ratebypass=yes&dur=875.903&lmt=1776689203122149&mt=1778525579&fvip=3&fexp=51565116%2C51565681&c=ANDROID&txp=6309224&sparams=expire%2Cei%2Cip%2Cid%2Citag%2Csource%2Crequiressl%2Cxpc%2Cbui%2Cspc%2Cvprv%2Csvpuc%2Cmime%2Crqh%2Cgir%2Cclen%2Cratebypass%2Cdur%2Clmt&sig=AHEqNM4wRAIgbvWp_A_WIj5n7srphprVhXg-fSuoemsg2IHL3W2Fo0UCIBE4bWMxxu_kkKN-BHj8npI7mxEFMbmStvBWx6TrYxzC&lsparams=cps%2Cmet%2Cmh%2Cmm%2Cmn%2Cms%2Cmv%2Cmvi%2Cpl%2Crms%2Cinitcwndbps&lsig=APaTxxMwRAIgV2_UaRPdPRfkAUVZEiDtfFdOvWv8RGfz-MuIqog4ZHECIEPcDpYr7uHbKpfA_-GXPD_7UiEZdsc73Gta1k5H0KqF
 
 #asmon
 
