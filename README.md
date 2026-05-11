@@ -24,3 +24,13 @@ https://youtu.be/5u5I5jvWR5k?si=VdqDgSQZSGL_v5qg
 https://youtu.be/9CKRoKFdS5Y?si=VzX8s-tHhMnluEQh
 #why?
 https://youtu.be/SMOD_GiRzb8?si=8ggMoKYIvFeGPlq_
+
+
+#silent_hills_f
+
+https://youtu.be/2q0w0Yp-61Y?si=auHZSf57qMIIGYxb
+https://youtu.be/mp5RfCUR5WY?si=ULGrwY_zSa_uSvTb
+https://youtu.be/uQqlg1GR45A?si=rUGJae1Z5AyHxF1a
+https://youtu.be/_C4vS_bjJoU?si=pSQWIQqld3yGo2vh
+https://youtu.be/LhNgswBcbOQ?si=c2225LywjfbOLJDr
+https://youtu.be/ZW5lnCrup4w?si=RRWQ5nv_rHEXibBN
