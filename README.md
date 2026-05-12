@@ -35,30 +35,3 @@ https://youtu.be/GIJDqFVsJYk?si=YClpZbkHYtyQkMmt
 Inside cuba 
 
 https://youtu.be/HPdyDwLIlrY?si=tyeiaRLKh1ZkLb09
-
-Switzerland
-
-https://youtu.be/RDeZjj3WK-Q?si=ugp0LWY-ssTHrp7Z
-
-
-
-San salvador
-
-https://youtu.be/kvepNltDHsg?si=Nr0DR3KAxFQ33hqE
-
-Ho chi minh
-
-https://youtu.be/D7F6pTXmvWw?si=gD06HzMpBhri9GZH
-
-Indonisia
-
-https://youtu.be/GO0-ggFMhnA?si=exwoQjhmCpgYRfuc
-
-
-Manila
-
-https://youtu.be/OOf2J_qQz-o?si=B_85g0McAjlpfpNt
-
-San antonio
-
-https://youtu.be/IwrQac9HOmE?si=vYPGid8f5SBtSG5S
