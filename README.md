@@ -17,7 +17,17 @@ https://youtu.be/g-lJnVohoZ0?si=Ra1afDJHVqEXIXts
 spencer pratt running for la mayor 16min
 https://youtu.be/luOYB5Axhdk?si=GiGXJ1RyrkOluAgQ
 
-#sidemen_among_us
+Mouse p asmon 2hour
+
+https://youtu.be/JQOFwR7N0K0?si=MXMp1gI91ve-KXGv
+
+Mouse p for hire ign asmon 22min
+https://youtu.be/N4lL8c82WFc?si=xr4Ie4OdsAMWdaoz
+
+Mortal shell asmon 16 min
+https://youtu.be/Zil4q2PEkCA?si=dFkcPBsLJPg1MKtV
+
+#sidemen_among_us round 1 hour each
 
 https://youtu.be/eDTb3Fj0yb0?si=97ODQaXWupWvERw-
 
@@ -42,21 +52,45 @@ https://youtu.be/cWK0tFJioHM?si=HBgaMJnTqOwjonKH
 
 https://youtu.be/md7R0YB7T4Y?si=N99XFR1QpDuaOSs1
 
-#your_favoirte_gooner
-
-https://youtu.be/rEAB4CKfx-8?si=Yn3VtOH7HFIqkkQq
-
-https://youtu.be/eRMrOEs8NGk?si=GVfpAKBBzpQyAdTb
 
 
-https://youtu.be/HJ3p-GSWdSQ?si=ZdE2J21pRmCpIrxn
+islandhopper more stuff each around 10 to 20 min
 
+Milan
+https://youtu.be/3JIUXLcSEbA?si=SnHMDr582ePmAh-y
 
-https://youtu.be/b5PAUusG8SQ?si=Thp38U_E0s2pl5i9
+Vienna
+https://youtu.be/MlNJdnePwvM?si=id65PO69rMUYdWdx
 
+Denevor
+https://youtu.be/GdjtNOH0p4g?si=bkdvsmvzFpoVu-VM
 
+Athenes
+https://youtu.be/xPK4vrPkdrc?si=_sWNPzEInCSYjsCp
 
+Prague
+https://youtu.be/C1S8zfMaFNc?si=NhXhgc-WYvWT3BHV
 
+Paris
+https://youtu.be/ORJksqKRJZA?si=vmeaDHKTpoftBZUs
+
+Mallorca
+https://youtu.be/woUAaxHvfI8?si=vNaLPwhH2e0ZxTCJ
+
+Madrid
+https://youtu.be/e6gRU8RSqnc?si=qwH8r7863CBfLJZR
+
+Zurich
+https://youtu.be/tghK9D8zcY4?si=ptkXo8ERQDcME9s-
+
+Dublin
+https://youtu.be/iPkdSw8JcJc?si=dQ5BpWHGg0t1jYFO
+
+Melbourne
+https://youtu.be/bl6VPxU023A?si=2oO1MSDVfF6ALv4W
+
+Sydney
+https://youtu.be/iSOcJEUHosU?si=zIdAutZ0hCvfSC1w
 
 
 
