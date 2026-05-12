@@ -26,52 +26,6 @@ https://youtu.be/3ytqnteXfjw?si=AeQNo0lq33h964NR
 
 
 
-Absolute state of china housing
-
-https://youtu.be/ZVt1DteHPvc?si=8qYfDNv88DLaJhJe
-
-Singapore
-
-https://youtu.be/hm5EwcGzJ9I?si=C-bdR5wH_W5hC0U-
-
-Kuala lampur
-
-https://youtu.be/k28E-ZDzqz4?si=VjkaqktWviL2iSot
-
-
-New york
-
-https://youtu.be/3IHDn3YPak0?si=csy8AtQKPVu5MUih
-
-Mexico
-
-https://youtu.be/NyJW-f_rjzU?si=1YzUn29ag3cgciow
-
-
-La
-
-https://youtu.be/qBK68vUdpMc?si=7fspm2Z6Ne6wbx5F
-
-London
-
-https://youtu.be/AC1cFhUw2Qk?si=7Qf6wIGOnqlmbeti
-
-Koh samui 
-
-https://youtu.be/Pl2xzuU7ST0?si=dINcFsqTGHvmLpru
-
-Krabi
-
-https://youtu.be/htGV5XeKOrQ?si=By__zZgHMth6rXK8
-
-Venece
-
-https://youtu.be/WC4B1HRfD00?si=KzuS6Y3eGrV7XoOl
-
-Houses in bangkok
-
-https://youtu.be/MhjL16zuZtI?si=INvqtV3A0WMeOmF6
-
 
 9mil house in tokyo
 
@@ -88,4 +42,23 @@ https://youtu.be/RDeZjj3WK-Q?si=ugp0LWY-ssTHrp7Z
 
 
 
+San salvador
 
+https://youtu.be/kvepNltDHsg?si=Nr0DR3KAxFQ33hqE
+
+Ho chi minh
+
+https://youtu.be/D7F6pTXmvWw?si=gD06HzMpBhri9GZH
+
+Indonisia
+
+https://youtu.be/GO0-ggFMhnA?si=exwoQjhmCpgYRfuc
+
+
+Manila
+
+https://youtu.be/OOf2J_qQz-o?si=B_85g0McAjlpfpNt
+
+San antonio
+
+https://youtu.be/IwrQac9HOmE?si=vYPGid8f5SBtSG5S
