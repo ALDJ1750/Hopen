@@ -44,3 +44,18 @@ The world largest ghost town
 https://youtu.be/Y6ZGkjdFAZs?si=luqTXY6V5axMI_Y7
 
 
+Nick ar 40min
+
+https://youtu.be/vYi0lg5p7ig?si=ZfaVbyttJCQTCJHR
+
+
+They are doing something
+
+
+https://youtu.be/3hKagUSJBqU?si=RVUG4B4HJjTubW6L
+
+
+He tried to warn us
+
+
+https://youtu.be/Uvcr2Pp1pOU?si=FdeZUBN2TW3IKLC8
