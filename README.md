@@ -10,11 +10,8 @@ https://youtu.be/zPdqkp2UOIo?si=qo6J-3fpW2KsFu5U
 
 https://youtu.be/unz9ASHaxzQ?si=ruSRVEIWxn6YTvlO
 
-He tried to warn us
+World of the future 
 
 
-https://youtu.be/Uvcr2Pp1pOU?si=g9TdSAhEf9KNI9r_
 
-hammer audited us
-
-https://youtu.be/nJzWUvsrKnI?si=jgD8oRuVeRlL9K6c
+https://youtu.be/nU7jTNOK7L8?si=5zXdwk_d1aA7JTpg
