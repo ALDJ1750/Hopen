@@ -1,7 +1,4 @@
-Harbin the coldest china megacity
 
-
-https://youtu.be/0I43VJIWuLI?si=ISmfHbevRL2hsI-e
 
 Cooman
 
@@ -13,34 +10,3 @@ https://youtu.be/zPdqkp2UOIo?si=qo6J-3fpW2KsFu5U
 
 https://youtu.be/unz9ASHaxzQ?si=ruSRVEIWxn6YTvlO
 
-
-Indians have invaded portugal 1 hour and 16 min
-
-https://youtu.be/HGhOxi_h9Yo?si=ozKilIgqUmYjqZAs
-
-Mrwhostheboss
-
-https://youtu.be/j7i_4RokEIo?si=Mc7KbG_8lfWw_MQB
-
-
-The world largest ghost town
-
-
-https://youtu.be/Y6ZGkjdFAZs?si=luqTXY6V5axMI_Y7
-
-
-Nick ar 40min
-
-https://youtu.be/vYi0lg5p7ig?si=ZfaVbyttJCQTCJHR
-
-
-They are doing something
-
-
-https://youtu.be/3hKagUSJBqU?si=RVUG4B4HJjTubW6L
-
-
-He tried to warn us
-
-
-https://youtu.be/Uvcr2Pp1pOU?si=FdeZUBN2TW3IKLC8
