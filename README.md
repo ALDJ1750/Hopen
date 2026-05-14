@@ -14,3 +14,7 @@ He tried to warn us
 
 
 https://youtu.be/Uvcr2Pp1pOU?si=g9TdSAhEf9KNI9r_
+
+hammer audited us
+
+https://youtu.be/nJzWUvsrKnI?si=jgD8oRuVeRlL9K6c
