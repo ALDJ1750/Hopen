@@ -18,3 +18,9 @@ Its too deep asmongold
 
 
 https://youtu.be/fdfKx13GweY?si=sPTcQuYAemaEGl0L
+
+
+
+more milk from master milker
+
+https://youtu.be/70ZKweCUR5U?si=Ly4OHSFUgtDla3PM
