@@ -10,17 +10,10 @@ https://youtu.be/zPdqkp2UOIo?si=qo6J-3fpW2KsFu5U
 
 https://youtu.be/unz9ASHaxzQ?si=ruSRVEIWxn6YTvlO
 
+
+asmongold
  
+https://youtu.be/wWZt1WlfWls?si=WQJZKPp0Oc7d8rQz
 
 
-favorite songs yakuz
-https://youtu.be/mUikuGbqDzU?si=u0oj2_7uL_MJn01V
-
-
-tekken 8
-
-https://youtu.be/wYiBklJhSgA?si=4-zZR_z9bcovuxlP
-
-marvel tokan
-
-https://youtu.be/uwPboFh-_ac?si=VjYuejZv3twWfpK3
+https://youtu.be/ZdiCl6pq__M?si=orznoACgfLfpvalr
