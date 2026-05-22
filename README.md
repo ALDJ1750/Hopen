@@ -13,11 +13,5 @@ https://youtu.be/unz9ASHaxzQ?si=ruSRVEIWxn6YTvlO
  
 
 
-street fighyer
-
-
-https://youtu.be/NfELn3dy7oc?si=zycZK3VoJee7hFO4
-
-lego
-
-https://youtu.be/ElBSzgTCh84?si=BiPfq6lgSQ7ynKtM
+favorite songs yakuz
+https://youtu.be/mUikuGbqDzU?si=u0oj2_7uL_MJn01V
